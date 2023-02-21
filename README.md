@@ -1,1 +1,2 @@
-# -
+# 메이저카지노
+The online casino system has grown tremendously in the last decade or so that it has been in existence - to a point where it is almost surpassing the brick and mortar casino system of the fore. Indeed, though hard statistics are hard to come by, chances are that at this point in time, there are more regular casino players who play on online casinos than there are playing in the traditional brick and mortar [메이저카지노](https://majorhoric.com/). Comparing in terms of playing volumes (amounts of money deposited and winnings earned), online casinos are also likely to win over brick and mortar casinos hands down.
